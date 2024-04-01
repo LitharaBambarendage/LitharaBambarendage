@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **litharabambarendage@gmail.com**
 
-- ⚡ Fun fact **If you lose your heel in midnight you are not Cinderella, you are just drunk😉🍻**
+- ⚡ Fun fact **If you lost your heel in midnight you are not Cinderella, you are just drunk😉🍻**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
