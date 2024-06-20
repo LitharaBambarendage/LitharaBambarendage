@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=litharabambarendage" alt="litharabambarendage" /></a> </p>
 
-- 🔭 I’m currently working on **ITP-MERN Stack Project**
+- 🔭 I’m currently learning **new Programming Languages**
 
 - 🌱 I’m currently following **BSc(Hons) Information Technology Degree**
 
